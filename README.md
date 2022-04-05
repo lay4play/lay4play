@@ -1,5 +1,7 @@
-### Hi there 👋
-
+### Hi there I'm Lay4play an Italian ICT student 👋
+- 🔭 I’m currently working on my website
+- 🌱 I’m currently learning C, C++, Java, Python
+- 😄 Pronouns: He/Him
 <!--
 **lay4play/lay4play** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
