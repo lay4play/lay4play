@@ -5,7 +5,7 @@ I'm Lay4play a 16 y.o. Italian ICT student
 - 😄 Pronouns: He/Him
 - 📫 How to reach me: [lay4play.tk](https://lay4play.tk)
 - 🗣️ Languages: English 🇺🇸 & Italian 🇮🇹
-- 🎮 Games: Minecraft
+- 🎮 Games: GTA V, Portal, Portal 2, Train Sim World 2
 - ⚡ Fun fact: Servers Addicted
 - 🌍 Living in Italy 🇮🇹
 
