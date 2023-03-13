@@ -1,5 +1,5 @@
 ### Hi there 👋
-I'm Lay4play a 16 y.o. Italian ICT student
+I'm Lay4play a 17 y.o. Italian ICT student
 - 🔭 I’m currently working on my website
 - 🌱 I’m currently learning C, C++, Java, Python
 - 😄 Pronouns: He/Him
