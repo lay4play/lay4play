@@ -7,7 +7,7 @@ I'm Lay4play a 17 y.o. Italian ICT student
 - 🗣️ Languages: English 🇺🇸 & Italian 🇮🇹
 - 🎮 Games:  [Minecraft](https://mappa.lay4play.tk), GTA V, Portal, Portal 2, Train Sim World 3 
 - ⚡ Fun fact: Servers Addicted
-- 🌍 Living in Italy 🇮🇹
+- 🌍 Living in Molfetta, BA 🇮🇹
 
 
 <!--
