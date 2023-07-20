@@ -3,9 +3,9 @@ I'm Lay4play a 17 y.o. Italian ICT student
 - 🔭 I’m currently working on my website
 - 🌱 I’m currently learning C, C++, Java, Python
 - 😄 Pronouns: He/Him
-- 📫 How to reach me: [lay4play.tk](https://lay4play.tk)
+- 📫 How to reach me: [lay4play.it](https://lay4play.it)
 - 🗣️ Languages: English 🇺🇸 & Italian 🇮🇹
-- 🎮 Games:  [Minecraft](https://mappa.lay4play.tk), GTA V, Portal, Portal 2, Train Sim World 3 
+- 🎮 Games:  [Minecraft](https://mappa.lay4play.it), GTA V, Portal, Portal 2, Train Sim World 3 
 - ⚡ Fun fact: Servers Addicted
 - 🌍 Living in Molfetta, BA 🇮🇹
 
